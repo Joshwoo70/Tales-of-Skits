@@ -3,10 +3,10 @@
 **Velvet**: A bathhouse?  
 **Comforting Katz**: Yep! The Super Spa! One dip in their baths and you'll feel as good as mew, inside and out!  
 **Comforting Katz**: Speaking from experience, I can promise you its so amazingly purrfect, your soul will leave your body!  
-**Velvet**: Super Spa, is it?.... Wait, is that why we've been lugging around all these Katz Towels?!  
-**Comforting Katz**: You got it, meow!  
+**Velvet**: Super Spa, is it?.... Wait, is that why we've been lugging around all these Katz Towels?!  
+**Comforting Katz**: You got it, meow!  
 **Velvet**: Its... not a mixed bath or anything, right?  
-**Comforting Katz**: No need to worry, meow! Men and women both have their own dedicated baths.  
+**Comforting Katz**: No need to worry, meow! Men and women both have their own dedicated baths.  
 **Velvet**: If you insist... I could definitely stand to unwind after so much fighting.  
 **Magilou**: Mmhm. I'm positively tingling with anticipation!  
 **Eizen**: You know, it might be nice to have some serious bonding time before the final battle.  
