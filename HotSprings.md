@@ -1,19 +1,19 @@
-**Comforting Katz**: You found me! Thank you so much, meow!
-**Comforting Katz**: To show you my catitude, I'd like to invite you to a nice, soothing bathhouse I found, meow!. 
-**Velvet**: A bathhouse?. 
-**Comforting Katz**: Yep! The Super Spa! One dip in their baths and you'll feel as good as mew, inside and out!. 
-**Comforting Katz**: Speaking from experience, I can promise you its so amazingly purrfect, your soul will leave your body! 
-**Velvet**: Super Spa, is it?.... Wait, is that why we've been lugging around all these Katz Towels?! 
-**Comforting Katz**: You got it, meow! 
-**Velvet**: Its... not a mixed bath or anything, right?. 
+**Comforting Katz**: You found me! Thank you so much, meow!  
+**Comforting Katz**: To show you my catitude, I'd like to invite you to a nice, soothing bathhouse I found, meow! 
+**Velvet**: A bathhouse?.   
+**Comforting Katz**: Yep! The Super Spa! One dip in their baths and you'll feel as good as mew, inside and out!  
+**Comforting Katz**: Speaking from experience, I can promise you its so amazingly purrfect, your soul will leave your body!  
+**Velvet**: Super Spa, is it?.... Wait, is that why we've been lugging around all these Katz Towels?!  
+**Comforting Katz**: You got it, meow!  
+**Velvet**: Its... not a mixed bath or anything, right?  
 **Comforting Katz**: No need to worry, meow! Men and women both have their own dedicated baths.  
-**Velvet**: If you insist... I could definitely stand to unwind after so much fighting. 
-**Magilou**: Mmhm. I'm positively tingling with anticipation!. 
-**Eizen**: You know, it might be nice to have some serious bonding time before the final battle. 
-**Laphicet**: Actually, I've never been to a bath house before... 
-**Eleanor**: Oh, you're in for a treat. That steam will have your skin silky smooth. 
-**Rokurou**: And there's nothing like a good drink after a hot bath. 
-**Comforting Katz**: This Gate of Travel will take you there straight away. Feel free to use it anytime, meow! 
+**Velvet**: If you insist... I could definitely stand to unwind after so much fighting.  
+**Magilou**: Mmhm. I'm positively tingling with anticipation!  
+**Eizen**: You know, it might be nice to have some serious bonding time before the final battle.  
+**Laphicet**: Actually, I've never been to a bath house before...  
+**Eleanor**: Oh, you're in for a treat. That steam will have your skin silky smooth.  
+**Rokurou**: And there's nothing like a good drink after a hot bath.  
+**Comforting Katz**: This Gate of Travel will take you there straight away. Feel free to use it anytime, meow!  
 
 **Magilou**: Aaaah... You know, I'm pretty okay with this.  
 **Eleanor**: I'll second that. This feels really nice.  
