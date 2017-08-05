@@ -15,15 +15,15 @@
 **Rokurou**:         And there's nothing like a good drink after a hot bath.  
 **Comforting Katz**: This Gate of Travel will take you there straight away. Feel free to use it anytime, meow!  
 
-Magilou:              Aaaah... You know, I'm pretty okay with this.  
-Eleanor:              Ill second that. This feels really nice.  
+**Magilou**:              Aaaah... You know, I'm pretty okay with this.  
+**Eleanor**:              Ill second that. This feels really nice.  
 **Velvet**:           Yeah... Its like I can feel my soul just floating off with the steam.  
-Eleanor(Rokurou):     Aaah... It feels like all my wounds are melting away.  
+**Eleanor(Rokurou)**:     Aaah... It feels like all my wounds are melting away.  
 **Magilou(Eizen)**:   I'll say. The water is just the right temperature. Soothes all the important places.  
-**Velvet**(Laphicet): Wait, what... What the hell?  
+**Velvet(Laphicet)**: Wait, what... What the hell?  
 **Eleanor(Rokurou)**: Don't splash the water around, Velvet! That's totally bad manners!  
-**Velvet**(Laphicet): I cant help it. My legs don't reach the bottom...  
-**Velvet**(Laphicet): Wait... Am I in Phi's body?!  
+**Velvet(Laphicet)**: I cant help it. My legs don't reach the bottom...  
+**Velvet(Laphicet)**: Wait... Am I in Phi's body?!  
 **Eleanor(Rokurou)**: Augh, and I'm inside Rokurou! Eww, look at these muscles!  
 **Magilou(Eizen)**:   Heh, I'm actually as tall as I always wished I was! What the Devils going on in here?!  
 **Katz(Bienfu)**:     This is what makes this place so special, meow.  
@@ -49,7 +49,7 @@ Eleanor(Rokurou):     Aaah... It feels like all my wounds are melting away.
 **Eizen(Magilou)**:   Hey, Katz! We better not be stuck like this forever!  
 **Katz(Bienfu)**:     No need for confurn, meow. Youll all go back to normal once you leave the spring.  
 **Velvet(Laphicet)**: Right then, everybody out. This is just too weird to be relaxing.  
-???:                  Actually, before we go... I've noticed the Katz's been staring at us for pretty much the entire time.  
+**???**:              Actually, before we go... I've noticed the Katz's been staring at us for pretty much the entire time.  
 **Velvet(Laphicet)**: ...  Yeah, that's Bienfu. Smack him for me.  
 **Rokurou(Eleanor)**: Got it.  
 **Bienfu(Katz)**:     Bieeeeeen!  
