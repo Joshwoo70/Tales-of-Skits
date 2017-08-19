@@ -47,27 +47,27 @@
 **Velvet(Laphicet)**: E-Eleanor! Don't stand up!  
 *After a short awkward silence, Eleanor sit back down*  
 **Eizen(Magilou)**:   Hey, Katz! We better not be stuck like this forever!  
-**Katz(Bienfu)**:     No need for confurn, meow. Youll all go back to normal once you leave the spring.  
+**Katz(Bienfu)**:     No need for confurn, meow. You'll all go back to normal once you leave the spring.  
 **Velvet(Laphicet)**: Right then, everybody out. This is just too weird to be relaxing.  
 **???**:              Actually, before we go... I've noticed the Katz's been staring at us for pretty much the entire time.  
 **Velvet(Laphicet)**: ...  Yeah, that's Bienfu. Smack him for me.  
 **Rokurou(Eleanor)**: Got it.  
 **Bienfu(Katz)**:     Bieeeeeen!  
 
-**Rokurou**: Thats too bad... It was such a lovely hot spring. I wish wecould have stayed a little longer.  
-**Eleanor**: (*Blushing/Angrily*) No, you really dont. Lets all agree to forget this ever happened.  
+**Rokurou**: Thats too bad... It was such a lovely hot spring. I wish we could have stayed a little longer.  
+**Eleanor**: (*Blushing/Angrily*) No, you really don't. Lets all agree to forget this ever happened.  
 **Eizen**:   ... How do you expect us to do that?  
-**Rokurou**: Dont go asking for things we cant actually do.  
+**Rokurou**: Don't go asking for things we cant actually do.  
 **Eleanor**: (*Blushing/Angrily*) I SAID FORGET IT!  
 **Rokurou**: If you insist... I-Ill try.  
 **Eizen**:   Uh... Fine...  
-**Magilou**: Yeesh... So much for a nice team-building exercise! I feellike this has just driven a wedge further between us.  
+**Magilou**: Yeesh... So much for a nice team-building exercise! I feel like this has just driven a wedge further between us.  
 
 **Velvet**: I heard you kept your eyes covered the whole time.  
 **Laphicet**: Y-Yeah, I did....  
 **Velvet**: Hah. Thats so you.  
 **Laphicet**: Whats the problem? I was just trying to be polite!  
 **Velvet**: Its fine. Theres no problem.  
-**Velvet**: But I didnt cover mine...  
+**Velvet**: But I didn't cover mine...  
 **Laphicet**: (*Blushing*) Ah...  
 **Laphicet**: *Blushing/Angrily* Argh! Velvet! Why would you even tell me that?!  
