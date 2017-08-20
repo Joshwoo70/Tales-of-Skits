@@ -1,3 +1,4 @@
+## Wicked Nekkid Wind
 **Zaveid**:	 Hey Mr. Shepherd. Where's Lailah and the others?  
 **Sorey**:	 They went to the sauna to relax.  
 **Zaveid**:	 Oh snap! Sorey, let's hit up the sauna!  
@@ -17,6 +18,7 @@
 **Zaveid**:	 That's not the kind of babe hunting I'm talking about!  
 **Mikleo**:	 Huh?  
 
+## Sauna Chat: Men's Angle
 **Zaveid**:	 Where's Lailah and the others?  
 **Sorey**:	 They said that they'll be at the sauna.  
 **Zaveid**:	 Alright! Let's all go together! That means you too, Mikboy!  
@@ -39,6 +41,7 @@
 **Sorey, Mikleo, Zaveid**:	 Whew...  
 **Sorey, Mikleo, Zaveid**:	 Sure is hot...  
 
+## Sauna Chat: Ladies's Angle
 **Edna**:	 It's so loud in the guys sauna.  
 **Rose**:	 Sorey and Mikleo are probably having some sort of conversation about the history of sauna or something like that.  
 **Lailah**:	 Like a "how did sauna spread to the rest of the world?" sort of discussion.  
