@@ -22,12 +22,19 @@
 **Rokurou**: (*Slightly bragging*) I am! Come at me with a bow or a gun if you like!  
 **Rokurou**: (*Thinking*) ..Although don't actually do that,(*Serious*) because I'd have to kill you, so, y'know...  
 (*Crowd laughs again*)  
-**Magilou**:  (*Slightly sweating*) While the audience thinks that's a joke, let's move right along to our talk segment.
-**Magilou**:  There are six topic cards!
-**Magilou**:  Matters of the Heart... (*Rokurou looks over at the cards*) Now Here's the Truth...
-**Magilou**:  My first time... (*Rokurou places his hand over his chest*) My Biggest Shame...
-**Magilou**:  (*Rokurou Looks away*)What Turns Me On... (*Rokurou clenches his hands, smiling.*)and Anything Goes!
-**Magilou**:  (*Rokurou Looks away*)Now we just
+**Magilou**:  (*Slightly sweating*) While the audience thinks that's a joke, let's move right along to our talk segment.  
+**Magilou**:  There are six topic cards!  
+**Magilou**:  Matters of the Heart... (*Rokurou looks over at the cards*) Now Here's the Truth...  
+**Magilou**:  My first time... (*Rokurou places his hand over his chest*) My Biggest Shame...  
+**Magilou**:  (*Rokurou Looks away*)What Turns Me On... (*Rokurou clenches his hands, smiling.*)and Anything Goes!  
+**Magilou**:  (*Bending downwards*)Now we just put these cards in Magilou's Mystery Box...
+**Magilou**:  (*Springing upwards*)And Rokurou! Draw a card.  
+**Rokurou**:  (*Smiling*)All right, this one!  
+**Magilou**:  And the card is... "My First Time"!
+(*Crowd Applauses*)  
+**Magilou**:  Please, tell us about something that was a very special experience for you.  
+**Rokurou**:  Let's see... Well, I could tell you about the first time I killed a living thing!
+**Magilou**:  (*Unamused, Slightly Sweating*)Is that.. something you can talk here?
 **Eizen**:   
 **Laphicet**: 
 **Rokurou**: 
