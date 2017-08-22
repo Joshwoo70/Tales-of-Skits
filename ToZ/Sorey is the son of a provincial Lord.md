@@ -36,7 +36,7 @@
 **Sorey**:	*Dezel forces Sorey to bow, almost breaking his neck* Gah!  
 **Sorey**:	 Sorry...  
 **Rose**:	 You're doing your best! It's cool!  *Walks over and put her hand on his shoulder*  
-**Sorey**:	 Oh, my dearest!*Edna puts Sorey arms on Rose's hands* Your sweet words  are succor to my tired limbs! *Cue Mikleo Facepalming again*  
+**Sorey**:	 Oh, my dearest! *Edna puts Sorey arms on Rose's hands* Your sweet words  are succor to my tired limbs! *Cue Mikleo Facepalming again*  
 **Sergei**:	 Sow the seeds of love, and they will bloom no matter how arid the terrain.  
 **Sergei**:	 Live and be strong!  
 **Sergei**:	 Next!  

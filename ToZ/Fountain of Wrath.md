@@ -11,7 +11,7 @@
 **Rose**:  Something with the piping's all messed up. Every now and then...  
 **Edna**:  (*Screaming*) Aaaaughhh!  
 ![Edna Shoes](http://i.imgur.com/yvZ9X1R.png)  
-*Edna shoes are wet she isn't Pleased*
+*Edna shoes are wet she isn't Pleased*  
 **Edna**:  ...  
 **Rose**:  Like that.  
 **Edna**:  Oh dear.  
