@@ -10,7 +10,7 @@
 **Lailah**:  "Wrath"? Why do they call it that?  
 **Rose**:  Something with the piping's all messed up. Every now and then...  
 **Edna**:  (*Screaming*) Aaaaughhh!  
-![Edna Shoes](http://i.imgur.com/yvZ9X1R.png)  
+![Edna Shoes](http://i.imgur.com/yvZ9X1Rm.png)  
 *Edna shoes are wet she isn't Pleased*  
 **Edna**:  ...  
 **Rose**:  Like that.  
