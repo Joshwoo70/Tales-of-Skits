@@ -25,11 +25,11 @@
 **Peddler**: But if you buy some from me, it would really help to lighten my load!  
 **Jude**:    What kind of books are they?  
 **Peddler**: Oh, I've got all sorts of rare finds.  
-**Peddler**: Like this first edition of ***"The Chronicles of Kresnik"***! This baby would fetch five million gald at auction, easy.  
-**Peddler**: Next, we have the fabled book of battle tactics from the legendary Ilbert the Conductor, titled ***"The Complete Tactician"***.  
-**Peddler**: Not only that, it's a limited edition that contains a supplemental volume of the Conductor's poetry, titled ***"Mad Screams of Love"***.   
+**Peddler**: Like this first edition of **_"The Chronicles of Kresnik"_**! This baby would fetch five million gald at auction, easy.  
+**Peddler**: Next, we have the fabled book of battle tactics from the legendary Ilbert the Conductor, titled **_"The Complete Tactician"_**.  
+**Peddler**: Not only that, it's a limited edition that contains a supplemental volume of the Conductor's poetry, titled **_"Mad Screams of Love"_**.   
 **Jude**:    The Conductor's poetry?!  
-**Alvin**:   ***"Mad Screams of Love"***?  
+**Alvin**:   **_"Mad Screams of Love"_**?  
 **Rowen**:   (*Taken aback*) H-How did that get on the market?!  
 **Alvin**:   You've got yourself a sale.  
 **Peddler**: Thank you very much!  
@@ -54,7 +54,7 @@
 **Driselle**: Oh, hello Rowen.  
 **Rowen**: My lady, I couldn't help but notice that you appear a bit flushed. I hope you haven't caught a fever?  
 **Driselle**: I have caught a fever! A fever born from great passion!  
-**Driselle**: I was so moved by the poetry you wrote in *"Mad Screams of Love*".  
+**Driselle**: I was so moved by the poetry you wrote in **_"Mad Screams of Love"_**.  
 **Rowen**: What!? You don't mean... You were the one who bought that book?!  
 **Driselle**: Yes! I must have read it aloud dozens of times!  
 **Driselle**: The passion you exude in your screaming about love and pain is just incredible!  
