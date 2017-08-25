@@ -1,30 +1,36 @@
-## Wicked Nekkid Wind
-**Zaveid**:	 Hey Mr. Shepherd. Where's Lailah and the others?  
+**This may be considered NSFW.  
+Here be there Dragons!**
+
+### Wicked Nekkid Wind
+**Zaveid**:	 (*Thinking*) Hey Mr. Shepherd. Where's Lailah and the others?  
 **Sorey**:	 They went to the sauna to relax.  
 **Zaveid**:	 Oh snap! Sorey, let's hit up the sauna!  
 **Sorey**:	 Eh, maybe later.  
-**Zaveid**:	 Come on, don't be such a buzzkill! We men need to be open and comfortable about things like this! You know, a naked relationship!  
-**Sorey**:	 Well, you are always half naked, Zaveid.  
+**Zaveid**:	 (*Excited*) Come on, don't be such a buzzkill! We men need to be open and comfortable about things like this! You know, a naked relationship!  
+**Sorey**:	 (*Thinking*) Well, you are always half naked, Zaveid.  
 **Zaveid**:	 I may look like an exhibitionist when it comes to my body, but the door to my heart is always closed! That's why I wanted to take this time to bond with you!  
 **Zaveid**:	 You know, like, as an accomplice.  
-**Sorey**:	 Don't tell me you're going to read the wind to snoop around the girls' sauna?  
+**Sorey**:	 (*unamused*) Don't tell me you're going to read the wind to snoop around the girls' sauna?  
 **Zaveid**:	 Oh ho? You're pretty sharp after all, you no good Shepherd, you!  
 **Sorey**:	 I don't think this is a good idea. Someone's definitely going to notice!  
 **Zaveid**:	 I don't wanna grow up to be the kinda guy who views everything as a win or lose situation!  
 **Zaveid**:	 The trickling sweat, the flushed red cheeks... there is a healthy, sublime beauty in this closed space we call a sauna!  
 **Zaveid**:	 Sorey... Lets go hunting for babes.  
+*Mikleo walks in from the sauna*    
+![Mikleo](http://i.imgur.com/YOlls8Gm.png)  
 **Mikleo**:	 Whew, that sure was therapeutic! Why don't you guys step in as well?  
 **Sorey**:	 You mean like this?  
-**Zaveid**:	 That's not the kind of babe hunting I'm talking about!  
-**Mikleo**:	 Huh?  
+**Zaveid**:	 (*Shocked*) That's not the kind of *babe* hunting I'm talking about!  
+**Mikleo**:	 (*Curious*) Huh?  
 
-## Sauna Chat: Men's Angle
+### Sauna Chat: Men's Angle
 **Zaveid**:	 Where's Lailah and the others?  
 **Sorey**:	 They said that they'll be at the sauna.  
 **Zaveid**:	 Alright! Let's all go together! That means you too, Mikboy!  
 **Mikleo**:	 I'll pass.  
-**Zaveid**:	 Unacceptable! As men, we need to be open and... yah blah blah blah, something something!  
-**Mikleo**:	 What's with you guys!  
+**Zaveid**:	 Unacceptable! As men, we need to be open and... yah blah blah blah, (*Pushes them towards the sauna*) something something!  
+**Mikleo**:	 (*Slighty Angry*)What's with you guys!  
+![Mikleo](http://i.imgur.com/HCc52thl.png)  
 **Mikleo**:	 So hey, fun fact: popular theory has it that the prototype for saunas was originally a smokehouse.  
 **Zaveid**:	 Alright, time to read the wind! I got this!  
 **Sorey**:	 Hmm. So either way, it came from the northern regions. And then I guess spread across the Glenwood continent from there?  
@@ -41,7 +47,8 @@
 **Sorey, Mikleo, Zaveid**:	 Whew...  
 **Sorey, Mikleo, Zaveid**:	 Sure is hot...  
 
-## Sauna Chat: Ladies's Angle
+### Sauna Chat: Ladies's Angle
+![Mikleo](http://i.imgur.com/GGJPpiCl.png)  
 **Edna**:	 It's so loud in the guys sauna.  
 **Rose**:	 Sorey and Mikleo are probably having some sort of conversation about the history of sauna or something like that.  
 **Lailah**:	 Like a "how did sauna spread to the rest of the world?" sort of discussion.  

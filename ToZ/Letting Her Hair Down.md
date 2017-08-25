@@ -1,4 +1,5 @@
-**Lailah**:  *I could Say I'm a fan of this paper fan... No that's too easy*  
+![Lailah's Hair](http://i.imgur.com/F2tX98im.png)  
+**Lailah**:  *I could Say I'm a fan of this paper fan... No that's too easy.*  
 **Rose**:    You still awake? Oh, hey. I think this is the first time I've seen you with your hair down.  
 **Lailah**:  I need to set it properly to make sure it doesn't get in the way during battle.  
 **Rose**:    Styling is a pain! I just cut mine when it gets too long.  

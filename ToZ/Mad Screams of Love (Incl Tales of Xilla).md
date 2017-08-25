@@ -15,38 +15,38 @@
 **Sorey**:   Really? It all sounds pretty good to me.  
 **Mikleo**:  Huh?  
 **Lailah**:  Huh?  
-**Mikleo**:  (*Emberassed*)Sorey, I think that's because you're so...  
+**Mikleo**:  (*Embarrassed*)Sorey, I think that's because you're so...  
 **Lailah**:  (*Blushing*)So inherently enthusiastic.  
 **Sorey**:   You guys okay? You look kinda, uh, mad.  
 
 **Peddler**: Phew, I'm exhausted.  
 **Jude**:    That cargo looks pretty heavy.  
-**Peddler**: They're all books, and yes, they really are. Who knew paper could be so heavy?  
-**Peddler**: But if you buy some from me, it would really help to lighten my load!  
+**Peddler**: (*Slightly surprised from the group*) They're all books, and yes, they really are. Who knew paper could be so heavy?  
+**Peddler**: (*Hopeful*) But if you buy some from me, it would really help to lighten my load!  
 **Jude**:    What kind of books are they?  
 **Peddler**: Oh, I've got all sorts of rare finds.  
 **Peddler**: Like this first edition of **_"The Chronicles of Kresnik"_**! This baby would fetch five million gald at auction, easy.  
 **Peddler**: Next, we have the fabled book of battle tactics from the legendary Ilbert the Conductor, titled **_"The Complete Tactician"_**.  
 **Peddler**: Not only that, it's a limited edition that contains a supplemental volume of the Conductor's poetry, titled **_"Mad Screams of Love"_**.   
-**Jude**:    The Conductor's poetry?!  
-**Alvin**:   **_"Mad Screams of Love"_**?  
+**Jude**:    (*Taken aback*) The Conductor's poetry?!  
+**Alvin**:   (*Thinking*) **_"Mad Screams of Love"_**?  
 **Rowen**:   (*Taken aback*) H-How did that get on the market?!  
 **Alvin**:   You've got yourself a sale.  
 **Peddler**: Thank you very much!  
-**Rowen**:   W-Wait!  
+**Rowen**:   (*Embarrassed*) W-Wait!  
 **Rowen**:   Surely all of us have done foolish things in our youths that we'd be embarrassed to confront today!  
 **Rowen**:   Aren't we, as adults, supposed to turn a blind eye to such things in order to spare others from their shame?  
-**Jude**:    I've never seen Rowen like this.  
+**Jude**:    (*Thinking*) I've never seen Rowen like this.  
 **Jude**:    I'm ashamed to say it, but that only makes me want to read it all the more.  
 **Jude**:    I guess that makes me a child still.  
 **Alvin**:   The only shame here would be abandoning that healthy, youthful curiosity in an attempt to seem more grown-up than you are.  
-**Alvin**:   Real men have to hold onto their childlike curiosity for as long as they can.  
+**Alvin**:   (*Shruging*) Real men have to hold onto their childlike curiosity for as long as they can.  
 **Alvin**:   Which is why I'm going to indulge mine with this special-edition copy of Rowen's masterwork.  
-**Jude**:    Sounds good to me!  
+**Jude**:    (*Chicken Dancing*) Sounds good to me!  
 **Rowen**:   H-How cruel!  
 **Peddler**: Oh no, I'm so sorry! This book has already been sold to another buyer.  
 **Peddler**: Someone in Sharilton who already paid in full.  
-**Rowen**:   Oh my... That was a close one!  
+**Rowen**:   (*Relief*) Oh my... That was a close one!  
 **Alvin**:   Aww. You've broken my heart.  
 **Peddler**: I am so sorry! Perhaps I could offer you a free copy of this book by way of an apology?  
 **Peddler**: It's an equally rare treasure itself! Enjoy!  

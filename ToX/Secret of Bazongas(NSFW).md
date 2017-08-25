@@ -11,11 +11,11 @@
 **Rowen**: (*Slightly Angry*) Then you will never know bazongas. You have to want it, Jude. You have to need it.  
 **Jude**:  Then, teach me about bazongas.  
 **Rowen**: (*Angry*)I can barely hear you. You have to mean it! 
-**Jude**:  (*Inhaling*)... 
+**Jude**:  (*Inhaling,Alvin and Rowen Moves off,Milla and Leia Enters*)... 
 **Jude**:  (*Shouting*) TEACH ME ABOUT BAZONGAS!!! 
-**Leia**:  (*Shocked*)Whoa! Don't go shouting things like that! 
+**Leia**:  (*Shocked*) Whoa! Don't go shouting things like that! 
 **Milla**: Don't scold him, Leia. I read about this in a book. It's called "*puberty*".  
 **Milla**: We're supposed to be understanding and supportive. 
-**Jude**:  (*Blushing*)Mmhmm...
+**Jude**:  (*Blushing*) Mmhmm...
 **Alvin**: Don't hate us. 
 **Rowen**: There's No shame in being burned by the fire of manhood.

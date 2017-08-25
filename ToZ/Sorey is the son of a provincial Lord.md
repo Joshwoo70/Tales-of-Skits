@@ -9,34 +9,36 @@
 **Sergei**:	 No. My gratitude for cooperating with our inspection.  
 **Rose**:	 Thanks for all your hard work!  
 **Sergei**:	 Next, you there. Quite some garb you're wearing. Are you this young woman's guard?  
+(*Edna Pokes Sorey with her Umbrella*)  
 **Rose**:	 Oh, er... A girl doesn't dare travel alone!  
 **Sergei**:	 Then why does he carry an ornamental sword?  
-**Mikleo**:	 He knew that Sorey's sword was ornamental?!  He's seeing right through us!  
-**Dezel**:	 He's less of an idiot than he looks.  
+**Mikleo**:	 (*Surprised*) He knew that Sorey's sword was ornamental?! He's seeing right through us!  
+**Dezel**:	 (*Defensive*) He's less of an idiot than he looks.  
 **Rose**:	 Wait. There are people watching.  
-**Dezel**:	*Looks over* Ah…  
-**Rose**:	*stuttering*  Well, y'know... We have our reasons!  
+**Dezel**:	 (*Looks over*) Uh…  
+**Rose**:	 (*stuttering*) Well, y'know... We have our reasons!  
 **Sergei**:	 I'm asking your guard here.  
 **Rose**:	 Crap.  
 **Lailah**:	 Repeat after me.  
+(*A wonder that Heals the Mind plays*)  
 **Sorey**:	 Please forgive my unquestionably suspicious appearance. The truth is, I am the son of a provincial lard.  
-**Edna**:	*Pokes Sorey due to him mis-saying Lord*  
+**Edna**:	 (*Pokes Sorey due to him mis-saying Lord*)  
 **Sorey**:	 Lord!  
 **Sergei**:	 Hm?  
 **Mikleo**:	 Rose!  
-**Rose**:	 That's right! My husband here is nobility!  
-**Lailah**:	*Shocked*  What? You're married?!  *Rose scratches her head, Lailah and Mikleo thinks.*  
+**Rose**:	 That's right! My husband here is nobility!(*Mikleo is surprised*)  
+**Lailah**:	 (*Shocked*)  What? You're married?!  *Rose scratches her head, Lailah and Mikleo thinks.*)  
 **Sorey**:	 Never had I lifted anything heavier than a fork in my life, yet by chance did I fall in love with a traveling merchant.  
 **Sorey**:	 In the throes of passion, I threw my money and land away to be with her, just over a year ago.  
-**Rose**:	 You...You did?  *Mikleo and lailah is shocked*  
+**Rose**:	 You...You did?  (*Mikleo and lailah is shocked*)  
 **Sorey**:	 E-Even my wife didn't know the full truth!  
 **Sorey**:	 The cruelties of the outside world taught me how feeble I truly am, but even so I knew a husband has a duty to protect his wife.  
-**Sorey**:	 *Edna Holding his hand while lailah is telling him his lines* So I wear an ornamental sword at my side, as a hollow pretense of strength.  
-**Sorey**:	*Mikleo helps with Sorey's other arm.. He puts it down and facepalms* Laugh... at the weak will of a sad, broken man!  
-**Sorey**:	*Dezel forces Sorey to bow, almost breaking his neck* Gah!  
+**Sorey**:	 (*Edna Holding his hand while lailah is telling him his lines* So I wear an ornamental sword at my side, as a hollow pretense of strength.  
+**Sorey**:	 (*Mikleo helps with Sorey's other arm.. He puts it down and facepalms* Laugh... at the weak will of a sad, broken man!  
+**Sorey**:	 (*Dezel forces Sorey to bow, almost breaking his neck* Gah!  
 **Sorey**:	 Sorry...  
 **Rose**:	 You're doing your best! It's cool!  *Walks over and put her hand on his shoulder*  
 **Sorey**:	 Oh, my dearest! *Edna puts Sorey arms on Rose's hands* Your sweet words  are succor to my tired limbs! *Cue Mikleo Facepalming again*  
-**Sergei**:	 Sow the seeds of love, and they will bloom no matter how arid the terrain.  
-**Sergei**:	 Live and be strong!  
+**Sergei**:	 (*Emotional*) Sow the seeds of love, and they will bloom no matter how arid the terrain.  
+**Sergei**:	 (*Emotional*) Live and be strong!  
 **Sergei**:	 Next!  
