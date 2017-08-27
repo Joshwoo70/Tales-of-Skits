@@ -15,11 +15,11 @@
 **Rokurou**:         And there's nothing like a good drink after a hot bath.  
 **Comforting Katz**: This Gate of Travel will take you there straight away. Feel free to use it anytime, meow!  
 
-*Eleanor walks in and sits.*
+(*Eleanor walks in and sits.*)  
 **Magilou**:          Aaaah... You know, I'm pretty okay with this.  
 **Eleanor**:          Ill second that. This feels really nice.  
 **Velvet**:           (*smiling and sinking in*)Yeah... Its like I can feel my soul just floating off with the steam.  
-*Screen Fades to the Men's Side*
+(*Screen Fades to the Men's Side*)  
 **Eleanor(Rokurou)**: Aaah... It feels like all my wounds are melting away.  
 **Magilou(Eizen)**:   I'll say. The water is just the right temperature. Soothes all the important places.  
 **Velvet(Laphicet)**: (*Shocked*) Wait, what... What the hell?  
@@ -32,7 +32,7 @@
 **Katz(Bienfu)**:     You feel so purrfectly divine that your soul floats away and switches bodies with someone else, meow!  
 **Magilou(Eizen)**:   Sheesh... Looks like even Bienfu and the Katz have swapped bodies.  
 **Eleanor(Rokurou)**: (*Revelation*) Wait... does that mean that the men are now in our bodies?!  
-*Screen Fades to the Women's Side / Magilou, the great sorceress Fades in*  
+(*Screen Fades to the Women's Side / Magilou, the great sorceress Fades in*)  
 **Rokurou(Eleanor)**: (*Frowning*) Well. This place certainly wasted no time in getting weird or awkward.  
 **Laphicet(Velvet)**: (*Embarrassed*) U-Uh... I'm not really comfortable with this. What do we do? I feel like I've got an inner tube strapped to my chest.  
 **Rokurou(Eleanor)**: Eizen, is this another side-effect of your curse?  
