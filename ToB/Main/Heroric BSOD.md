@@ -1,17 +1,17 @@
 (*Velvet see's her own dead body after killing the beast, she's taken a back. She screams in anguish.*)  
-**Eleanor**:   (*Shocked*)I-Is that..?1
+**Eleanor**:   (*Shocked*)I-Is that..?  
 **Velvet**:    (*Shocked*) I... I'm dead... I'm dead....  
 **Laphicet**:  (*Angrily*) Calm down, Velvet! This farce is just another of Innominat's illusions!  
-(*Innominat fades in.*)
+(*Innominat fades in.*)  
 **Innominat**:  "Farce?" How callous. That "farce" is the true face of my sister.  
-(*Velvet Gasps. Flashbacks of events in the story*)
+(*Velvet Gasps. Flashbacks of events in the story*)  
 **Innominat**:  She hates, resents, devours, and kills.  
 **Innominat**:  She tramples people, cities, everything, living only by her emotions...  
 **Innominat**:  What an ugly, tainted soul.  
 **Laphicet**:   (*Angrily*) Its not like that!  
 **Innominat**:  Nothing you say will matter. She knows. She knows if its the truth.  
 **Velvet**:     ... He's right.  
-(*Velvet Kneels down on the floor*)
+(*Velvet Kneels down on the floor*)  
 **Velvet**:.    (*Realization*) Just think. Everything I did was baseless, arrogant... And even so, I still....  
 **Innominat**:  You hurt so many innocent people, didn't you?  
 **Velvet**:     More than I can count... I devoured and killed so many...  
@@ -39,7 +39,7 @@
 **Velvet**:     If you Don't... You'll die too for no reason.  
 **Laphicet**:   No!  
 **Velvet**:      (*Voice Breaking*) A twisted monster like me doesn't deserve to live...(*Sobbing*) Don't you understand?  
-**Laphicet**:   Grrgh!
+**Laphicet**:   Grrgh!  
 **Innominat**:  You're the reincarnation of the first sacrifice. Part of me Don't worry. Ill devour you too.  
 **Eizen**:      Laphicet, tell this self-absorbed idiot what she needs to hear!  
 (*Eizen hold Laphicet by his leg and chaining himself to the ground using artes.*)  
@@ -78,4 +78,5 @@
 Seres Vanishes into a burning flame,The Earthen Historia Disappears in a flash.
 Reaching towards her heart, she pledges. Turns around towards the closing earthpulse.
 She Forces the Earthpulse to open again.
-Causing a trail of fire shooting out from the earthpulse to blow away Innominat.*)
+Causing a trail of fire shooting out from the earthpulse to blow away Innominat. It Reopens.*)  
+### **See Part 2 For the Continuation**
